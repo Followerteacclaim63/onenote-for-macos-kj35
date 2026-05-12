@@ -1,4 +1,4 @@
-#  
+#  OneNote for macOS best Plugin - export to PDF and custom themes offers the most advanced OneNote for macOS plugin, with export to PDF and custom themes. Ideal for professionals.
 
 
 
